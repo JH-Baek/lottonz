@@ -1,1 +1,1 @@
-# lottonz.github.io
+# Lotto NZ
